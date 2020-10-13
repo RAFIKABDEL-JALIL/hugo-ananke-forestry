@@ -23,9 +23,9 @@ Sur l'année scolaire 2020 - 2021 j'étudie à la Normandie web School en premi�
 
 ### **Loisirs**
 
-J'ai pratiqué du karaté entre les années scolaires 2008 et 2013 j'ai évolué jusqu'à la ceinture verte puis j'ai arrêté la pratique suite à un manque de temps . Les entraînements se déroulaient le lundi , le mercredi et le vendredi de 17h à 19h (à 17h j'était encore en cours sur ces jours - ci )
+###### J'ai pratiqué du karaté entre les années scolaires 2008 et 2013 j'ai évolué jusqu'à la ceinture verte puis j'ai arrêté la pratique suite à un manque de temps . Les entraînements se déroulaient le lundi , le mercredi et le vendredi de 17h à 19h (à 17h j'était encore en cours sur ces jours - ci )
 
-J'ai pratiqué du tennis pendant 4 ans de 2014 à 2018 . J'ai pratiqué se sport juste pour le plaisir et pour faire un peu de sport.
+###### J'ai pratiqué du tennis pendant 4 ans de 2014 à 2018 . J'ai pratiqué se sport juste pour le plaisir et pour faire un peu de sport.
 
-Je suis aussi engagé dans plusieurs associations culturelles et religieuses  tel que l'UMR (Union des Musulmans de Rouen) , la Mosquée de Rouen et dernièrement MAJK solidarité . Avec l'UMR je gère la sécurité de grands évènements avec l'assistance de mon équipe de jeune , je participe aussi au grands concours proposé par l'association en tant que juge et j'aide aux préparation d'évènements. Avec la Mosquée de Rouen je suis rattaché au comité éducatif en tant que référent jeune . Avec MAJK solidarité j'ai été gérant d'une grande collecte pendant le confinement pour aider les personnes en situations irrégulières ou les étudiants sans revenus à se nourrir .
+###### Je suis aussi engagé dans plusieurs associations culturelles et religieuses  tel que l'UMR (Union des Musulmans de Rouen) , la Mosquée de Rouen et dernièrement MAJK solidarité . Avec l'UMR je gère la sécurité de grands évènements avec l'assistance de mon équipe de jeune , je participe aussi au grands concours proposé par l'association en tant que juge et j'aide aux préparation d'évènements. Avec la Mosquée de Rouen je suis rattaché au comité éducatif en tant que référent jeune . Avec MAJK solidarité j'ai été gérant d'une grande collecte pendant le confinement pour aider les personnes en situations irrégulières ou les étudiants sans revenus à se nourrir .
 ![](/images/unnamed.jpg)
