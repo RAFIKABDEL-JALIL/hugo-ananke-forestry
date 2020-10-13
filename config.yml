@@ -1,6 +1,6 @@
 baseURL: "https://abdel-jalil.netlify.app/"
 languageCode: "en-us"
-title: "Hugo Ananke Forestry Starter"
+title: "mon CV"
 
 module:
   imports:
