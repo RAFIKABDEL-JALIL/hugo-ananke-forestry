@@ -2,7 +2,7 @@
 title: About
 description: 'Je m''appelle RAFIK ABDEL-JALIL, j''ai 21 ans et je suis étudiant en
   école d''informatique en première année. '
-featured_image: ''
+featured_image: "/images/220px-le_square_verdrel_2006_rouen.jpg"
 
 ---
 ### **Expérience:**
